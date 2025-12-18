@@ -13,6 +13,6 @@ Birkenstraße 31
 Germany
 
 Telefon: +49 928 3137015  
-Fax: +49 928 3136082
+Fax: +49 928 3136090
 
 Bitte beachten Sie, dass ich bei mir unbekannten Rufnummern nicht ans Telefon gehe.
